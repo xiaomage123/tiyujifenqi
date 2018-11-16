@@ -5,7 +5,6 @@
 联系邮箱：2025228425@qq.com
 
 
-![image](https://github.com/xiaomage123/tiyujifenqi/blob/master/IMG_0318.PNG)
 ![image](https://github.com/xiaomage123/tiyujifenqi/blob/master/IMG_0315.PNG)
 ![image](https://github.com/xiaomage123/tiyujifenqi/blob/master/IMG_0316.PNG)
 ![image](https://github.com/xiaomage123/tiyujifenqi/blob/master/IMG_0317.PNG)
